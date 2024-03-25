@@ -1,6 +1,10 @@
 # dooom
-1
-gy
-u
-78
+gdf
+tre
+5
+gdf
+6
+gdf8
+t
 -
+56
